@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @RichardShaneBailey
+- 👀 I’m interested in PC Gaming
+- 🌱 I’m currently learning to be a Salesforce Developer
+- 📫 How to reach me @ShxneGG on twitter, or Shxne.GG#2795 on Discord 
